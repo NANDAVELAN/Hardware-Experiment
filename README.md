@@ -29,5 +29,5 @@
 ![image](https://github.com/user-attachments/assets/c5ccf11d-c872-43b5-bcf2-b7b6fdc554a3)
 
 ## PSK 
-![image](https://github.com/user-attachments/assets/d5ec77e0-fa39-45f6-b1c1-30cd1ebc05b9)
+![image](https://github.com/user-attachments/assets/f9251d31-231f-4048-bbfa-04d0d3296dce)
 
